@@ -34,8 +34,8 @@
   [Check our facebook PAGE : NO](https://www.facebook.com/profile.php?id=100012725168978)
    
  call as on : 00962780187602 
- 
- ![wireframe](https://drive.google.com/file/d/1cuoO44lb_USM6i0c1y3JzdQ3RmtTHlZo/view)
+
+ [wireframe](https://drive.google.com/file/d/1cuoO44lb_USM6i0c1y3JzdQ3RmtTHlZo/view)
 
 
 
